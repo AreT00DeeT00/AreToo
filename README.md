@@ -5,4 +5,5 @@ Join us at the Tosche Station, we are a friendly community with great members an
 •We are based in Europe
 •We have friendly members and great admins
 •There are many fun activities and games that you can take part in
-https://discord.gg/7jyya6aQex
+
+https://discord.gg/GDyNbEKdZ5
